@@ -1,1 +1,1 @@
-# Moje aktualizacne ulozisko
+# Moje aktualizacne ulozisko adam
